@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=foullegacy&color=125CA4&label=fell+into+the+abyss&base=1000&style=flat-square&aligncenter)
+![](https://komarev.com/ghpvc/?username=foullegacy&color=C47827&label=fell+into+the+abyss&base=1000&style=flat-square&aligncenter)
 
 ![](https://i.imgur.com/1hyF5sS.png)
 
