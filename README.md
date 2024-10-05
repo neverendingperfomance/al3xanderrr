@@ -5,7 +5,7 @@
 
 
  
- ![](https://i.pinimg.com/564x/be/c2/d9/bec2d9d0096f2698c1842fd9e4a7b976.jpg) 
+ ![](https://media1.tenor.com/m/hqTCQG0UqdoAAAAd/tartaglia-edit-for-discord-profile.gif) 
  
   
                                    zhongchi n childe enthusiast
