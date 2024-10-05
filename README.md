@@ -7,6 +7,11 @@
 
  
  ![](https://media1.tenor.com/m/hqTCQG0UqdoAAAAd/tartaglia-edit-for-discord-profile.gif)
+
+<p align="center">
+// pull back your eyelids,
+// I'm lost in your iris
+</p>
  
 ![](https://i.imgur.com/4C5PQt3.png)  
                                    
