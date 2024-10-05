@@ -1,5 +1,6 @@
-
- <h1 align="center">![](https://komarev.com/ghpvc/?username=foullegacy&color=CA692E&label=fell+into+the+abyss&base=1000&style=flat-square&aligncenter)</h1>
+<p align="center">
+![](https://komarev.com/ghpvc/?username=foullegacy&color=CA692E&label=fell+into+the+abyss&base=1000&style=flat-square&aligncenter)
+</p>
 
 
 
