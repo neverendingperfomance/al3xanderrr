@@ -6,7 +6,7 @@
 
 
  
- ![](https://media1.tenor.com/m/hqTCQG0UqdoAAAAd/tartaglia-edit-for-discord-profile.gif)
+ ![](https://i.imgur.com/1c17K61.mp4)
 
 
  
