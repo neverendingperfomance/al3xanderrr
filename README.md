@@ -7,7 +7,7 @@
 
 
 <p align="center">
-  <img src=https://i.imgur.com/tjjNKXT.png?raw=true" alt="by @gemmsen on insta"/>
+  <img src=https://i.imgur.com/j5wRaTi.jpeg?raw=true" alt="by @gemmsen on insta"/>
 </p>
 
 
